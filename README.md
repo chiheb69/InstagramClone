@@ -12,6 +12,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=chiheb69&icon=0&color=0)](https://visitcount.itsvg.in)
 
-![Screenshot_1699099871 wi](https://github.com/chiheb69/InstagramClone/assets/36136371/3b98f168-7e23-4a64-ae5d-cfb2c2b2eef8) 
 
 
